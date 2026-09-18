@@ -1,3 +1,0 @@
-# Group Story
-
-Once upon a time, an alien and a cowboy met in a coffee shop... and the cowboy greeted the alien
